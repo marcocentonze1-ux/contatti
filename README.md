@@ -1,5 +1,3 @@
-(https://github.com/user-attachments/files/22959019/index.html)
-
 
 <html lang="it">
 <head>
